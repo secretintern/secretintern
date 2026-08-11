@@ -1,3 +1,3 @@
-ahhh. joy... 
+yay
 ![](https://file.garden/Z4_uMXj5okOfzfmz/Screenshot_20260726_003519_Roblox.png)
 ![](https://file.garden/Z4_uMXj5okOfzfmz/Screenshot_20260726_003451_Roblox.png) 
